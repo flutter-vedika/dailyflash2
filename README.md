@@ -1,3 +1,3 @@
 # dailyflash2
-Author - Vedika Deshmukh
+Author - Vedika Ravindra Deshmukh
 <br> 2/20
